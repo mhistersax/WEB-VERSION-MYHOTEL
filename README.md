@@ -1,0 +1,2 @@
+# WEB-VERSION-MYHOTEL
+ 
